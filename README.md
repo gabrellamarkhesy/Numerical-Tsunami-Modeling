@@ -64,7 +64,7 @@ Wave Height & ETA Maps
 
 **Gabrella (Perfic) Markhesy**
 
-Bachelor's Degree Candidate in Marine Science
+undergraduate Marine Science
 
 Faculty of Mathematics and Natural Sciences
 
